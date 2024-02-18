@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **chirayuk8755@outlook.com**
 
-- 📄 Know about my experiences [[https://1drv.ms/b/s!Ak6tfBbtaUvzgj2XOBolvSUjkIAH?e=J8ce0m])
+- 📄 Know about my experiences [https://1drv.ms/b/s!Ak6tfBbtaUvzgkWCKDsAHPEUFppc?e=irZjbf](https://1drv.ms/b/s!Ak6tfBbtaUvzgkWCKDsAHPEUFppc?e=irZjbf)
 
 - ⚡ Fun fact **I think i am a person that believe to learn and be updated. so that i always enrich my skills.**
 
